@@ -1,1 +1,0 @@
-# jazxykas.github.io
